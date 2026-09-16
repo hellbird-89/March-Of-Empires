@@ -223,4 +223,4 @@ March of Empires is available as a complete free version with all features and u
 Start your conquest today! Download **March of Empires** for free and claim your title as the ultimate ruler!
 
 ---
-**Last updated:** 2026-09-16 09:03:36 UTC
+**Last updated:** 2026-09-16 14:34:30 UTC
